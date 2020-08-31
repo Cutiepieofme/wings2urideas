@@ -1,2 +1,2 @@
-# wings2urideas
-GitHub Pages
+# Wings2UrIdeas!
+How to upload it now....?
